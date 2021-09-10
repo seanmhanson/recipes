@@ -2,7 +2,7 @@
 Adapted from:
 - Cauliflower with Smoked Bacon (腊肉烧花菜), from _The Food of Sichuan_ by Fuchsia Dunlop
 - Sautéed Cauliflower with Bacon, as served at [Hao Noodle By Madam Zhu's Kitchen](https://haonoodle.com/), West Village, NYC
-- Dry Pot Cauliflower, from [The Works of Life](https://thewoksoflife.com/dry-pot-cauliflower/) by [Judy Leung](https://thewoksoflife.com/author/jleung/)
+- Dry Pot Cauliflower, from [The Woks of Life](https://thewoksoflife.com/dry-pot-cauliflower/) by [Judy Leung](https://thewoksoflife.com/author/jleung/)
 
 I began trying to create a version of this dish after eating at Hao Noodle and having my mind blown by the exact balance of heat, umami, sweetness, and saltiness of such a simple dish. Fuchsia Dunlop's version is beautifully pared down and includes broth, whereas this adaptation is a bit more focused on the spice and heartiness, perhaps at the expense of the produce singing more clearly.
 
