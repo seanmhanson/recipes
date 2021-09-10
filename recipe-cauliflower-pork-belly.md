@@ -55,7 +55,7 @@ First, smash the black cardamom pods; if they are tough, instead cut them into f
 ### Liquid/Broth Preparation
 Mix the sesame oil, oyster sauce, rice wine, light soy sauce, and rice wine vinegar together, then optionally stir in the palm sugar paste or dark brown sugar. Mix well, then add at least 1/2 cup chicken/vegetable stock or water and sit aside.
 
-#### Cooking
+### Cooking
 Sauteé the garlic in a pan with neutral oil on medium heat until somewhat fragrant, then add the ginger, shallots, bacon, rinds, chili peppers, and lotus root and cook for a few minutes until quite fragrant. Remove the rinds, and add the cauliflower, spice mixture, and prepared liquids, stirring well, and then reduce to medium low and cover for 10min. If there isn't enough liquid, add an additional 1/2 cup of water or stock when reducing the heat.
 
 After simmering, if the liquid is too runny, remove the lid and simmer for 5-10min to allow the liquid to reduce.
