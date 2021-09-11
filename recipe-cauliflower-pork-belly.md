@@ -35,7 +35,7 @@ I began trying to create a version of this dish after eating at Hao Noodle and h
 - **1 star anise**
 - **1 small cassia cinnamon stick**, chopped into small pieces
  
-# Cooking Liquid and/or Broth
+### Cooking Liquid and/or Broth
 - **1 tsp toasted sesame oil**
 - **1 Tbs oyster sauce**
 - **1/2 cup water or stock**
